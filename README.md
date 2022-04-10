@@ -1,6 +1,4 @@
-![WhatsApp Image 2022-04-10 at 16 54 40](https://user-images.githubusercontent.com/93616336/162638087-3c0174d6-d60a-4dc8-b148-b783f6e6eddc.jpeg)
-
-
+![WhatsApp Image 2022-04-10 at 16 54 40](https://user-images.githubusercontent.com/93616336/162638135-6ad317f6-e84d-4bf7-8920-b9743346cd9b.jpeg)
 
 
 # kodluyoruzilkrepo
