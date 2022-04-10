@@ -1,3 +1,8 @@
+![WhatsApp Image 2022-04-10 at 16 54 40](https://user-images.githubusercontent.com/93616336/162638087-3c0174d6-d60a-4dc8-b148-b783f6e6eddc.jpeg)
+
+
+
+
 # kodluyoruzilkrepo
 Kodluyoruz Eğitimi kapsamında açtığım ilk repo
 
